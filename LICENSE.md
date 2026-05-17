@@ -1,4 +1,4 @@
-# 
+# automatic QuickBooks for PC plugins is the best QuickBooks for PC plugins with cloud-sync and payment-processing. Safe, reliable, and optimized for maximum performance.
 
 
 
